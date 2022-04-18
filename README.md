@@ -1,0 +1,1 @@
+- 👋 Hi, I’m @castshark, a programmer who is curious about the crypto world.
